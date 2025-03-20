@@ -1,4 +1,4 @@
-Tiktok Algorithm | 抖音算法
+抖音6身 Algorithm | 抖音算法
 
 # [Contact Telegram](https://t.me/douyinsix2025)
 # [联系需翻墙](https://t.me/douyinsix2025)
